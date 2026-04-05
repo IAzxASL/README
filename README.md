@@ -1,6 +1,6 @@
 𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 
-![alt](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbDdvYTZpZzV5cDB1eHByczVxcDZpOW9jNXF2ZTcxdWR2Nmw2NGswcSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/zHElvUzRMheBW/giphy.gif)
+![alt](https://drive.google.com/file/d/1kFtKs8c2GU96Z_9DKf8QdApkRQpHuawf/view?usp=drivesdk)
 
 
 [STRAW](https://iazx.straw.page) 
